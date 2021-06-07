@@ -1,2 +1,2 @@
 Hello world
-Replace me!
+Anything that comes to mind, but unique.
