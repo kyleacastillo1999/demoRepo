@@ -1,7 +1,7 @@
 Hello world
-rubber ducky you
-are the one rubber ducky
-so much fun splish splash
+bone hurtin juice oof
+i am in so much pain owie
+ahhhhhh ahhhh ahh ahh ah
 Scorching solar day
 A brilliant, smooth green whips
 at the perfect sand
